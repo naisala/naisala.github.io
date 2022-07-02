@@ -1,1 +1,0 @@
-# naisala.github.io
